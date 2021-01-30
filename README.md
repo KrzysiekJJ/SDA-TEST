@@ -2,4 +2,4 @@
 szkoleniówka
 ## Krzysiek
 * kolka  
-jbbvgvgvg  
+jbbvgv    
